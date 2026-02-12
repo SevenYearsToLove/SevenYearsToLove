@@ -14,7 +14,8 @@ It’s time to give the world a young man’s *inner experience* of finding love
         <li>Depression following a break-up</li><li>Brief dialog about self-harm</li>
         <li>Brief dialog about suicidal ideation and suicides that took place decades prior to the story</li>
         <li>Brief dialog about abortion, but no abortions take place</li>
-        <li>Characters engage in a wide spectrum of young adult sexual behaviors</li>
+        <li>Scenes involving alcohol use</li>
+        <li>Characters engage in a wide spectrum of young adult social and sexual behaviors</li>
       </ul>
       </td>
     </tr>
