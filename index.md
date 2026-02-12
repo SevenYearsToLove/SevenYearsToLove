@@ -4,7 +4,7 @@ It’s time to give the world a young man’s *inner experience* of finding love
 
 **This is a work of fiction:** *Names, characters, places, and incidents are fictitious. Any resemblance to actual events or locales or persons, living or dead, is entirely coincidental.*
 
-<table style="width:100%">
+<table>
   <tbody>
     <tr>
       <td><img src="./images/SevenYearsToLoveCover.png"></td>
