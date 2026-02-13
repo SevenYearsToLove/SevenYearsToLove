@@ -9,8 +9,8 @@ It’s time to give the world a young man’s *inner experience* of finding love
     <tr>
       <td><img src="./images/SevenYearsToLoveCover.png"></td>
       <td><b>Cautions:</b> This story includes blunt candor about sensitive subjects pertinent to the emotions and intimate thoughts of a late adolescent and that young man's self discovery. Teen sexuality is a theme throughout. The story begins with an almost 15 year old boy and follows seven years of emotional growth, heartbreak, first love, and forever love. Subjects include the following: <ul>
-        <li>Burgeoning sexuality including fantasies, masturbation, sexual experiences from chaste touch to first intercourse, and angst</li>
         <li>The gamut of emotions: embarrassment, jealousy, body image concerns, self confidence, lust, fear, creativity, compassion, nurturing, and love</li>
+        <li>Burgeoning sexuality including fantasies, masturbation, sexual experiences from chaste touch to first intercourse, and angst</li>
         <li>Depression following a break-up</li><li>Brief dialog about self-harm</li>
         <li>Brief dialog about suicidal ideation and suicides that took place decades prior to the story</li>
         <li>Brief dialog about abortion, but no abortions take place</li>
