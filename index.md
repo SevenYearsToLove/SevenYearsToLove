@@ -21,3 +21,12 @@ It’s time to give the world a young man’s *inner experience* of finding love
     </tr>
 </tbody>
 </table>
+
+## Forward
+
+## Description
+Everret is an almost fifteenyear old suffering a raging plague of puppy-lust. He desires, befriends, dates, and dissapoints several young women as his emotions mature and he becomes a young man. Everret's relationships guide him toward is destined true love. It's a treaturous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and tender guiding currents of love. 
+
+## Author Bio & Disclaimer
+
+Erik M. Buck is a semi-retired Engineer, Professor, Manager, Artist, and Entrepreneur. He lives in a midwestern USA state with his wife of 30+ years and is immensely proud of his three adult children. Writing "Seven Years To Love" started as an intimate nostalgic memoire that morphed into a fictional story caputuring the raw emotions of the memoire while protecting the privacy of people in the Author's life. In other words, the emotional content is an authentic subjective representation of the Author's inner experiences but must not be construed as acurate documentation of real events or real people. Furthermore, the narator is unreliable in the sense that the young man portraied usually doesn't understand what is happening around him.
