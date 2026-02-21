@@ -22,10 +22,8 @@ It’s time to give the world a young man’s *inner experience* of finding love
 </tbody>
 </table>
 
-## Forward
-
 ## Description
-Everret is an almost fifteenyear old suffering a raging plague of puppy-lust. He desires, befriends, dates, and dissapoints several young women as his emotions mature and he becomes a young man. Everret's relationships guide him toward is destined true love. It's a treaturous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and tender guiding currents of love. 
+Everret is an almost fifteen year old who has contracted a raging plague of puppy-lust. Everret's life's goal is learning how to please a woman. He desires, dates, and dissapoints several young women as he matures. Follow Everrett's inner thoughts, feelings, fantasies, emotions, anxieties, self discoveries, and sexual escapades both alone and with with the alluring potential to someday "go all the way". This story chronicles turning points in Everrett's life, decisions that change his destiny. Everret's relationships guide him toward a true love he can hardly imagine. It's a treaturous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and guiding currents of compassion and tolerence. Everrett is cringy, inept, precocious in some ways, and obtuse in other ways. He is sincere, nurturing, apreciative, sometimes callous, and often clueless. Young women in Everrett's life demonstrate sensuality, integrity, and most importantly to him, how to please a woman. Only then is he ready and worthy to meet his match. Only then can he achive his life's goal and find his forever.      
 
 ## Author Bio & Disclaimer
 
