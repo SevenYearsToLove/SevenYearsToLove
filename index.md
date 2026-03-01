@@ -24,7 +24,7 @@ It’s time to give the world a young man’s *inner experience* of finding love
 
 ## Description
 
-Everrett is an almost fifteen year old who has contracted a raging plague of puppy-lust. Follow Everrett’s inner thoughts, feelings, fantasies, emotions, anxieties, and sexual escapades both alone and with the alluring potential to someday “go all the way”. It’s a treacherous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and guiding currents of compassion. Destiny changing turning points shape Everrett until his is he ready and worthy to meet his match.      
+Everrett is an almost fifteen year old who has contracted a raging plague of puppy-lust. Follow Everrett’s inner thoughts, feelings, fantasies, emotions, anxieties, and sexual escapades both alone and with the alluring potential to someday “go all the way”. It’s a treacherous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and guiding currents of compassion. Destiny changing turning points shape Everrett until he is ready and worthy to meet his match.      
 
 ## Author Bio & Disclaimer
 
