@@ -1,6 +1,6 @@
-# Prologue
+# Description
 
-It’s time to give the world a young man’s *inner experience* of finding love. Young men need guides to make sense of the world and their places in it. The Author benefitted from several guides, all young women. This story is informed by the Author's lived experience and takes place over the span of a bit more than seven years starting in fall 1983, a period like no other.
+Everrett is an almost fifteen year old who has contracted a raging plague of puppy-lust. Follow Everrett’s inner thoughts, feelings, fantasies, emotions, anxieties, and sexual escapades both alone and with the alluring potential to someday “go all the way”. It’s a treacherous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and guiding currents of compassion. Destiny changing turning points shape Everrett until he is ready and worthy to meet his match.      
 
 **This is a work of fiction:** *Names, characters, places, and incidents are fictitious. Any resemblance to actual events or locales or persons, living or dead, is entirely coincidental.*
 
@@ -22,9 +22,9 @@ It’s time to give the world a young man’s *inner experience* of finding love
 </tbody>
 </table>
 
-## Description
+## Prologue
 
-Everrett is an almost fifteen year old who has contracted a raging plague of puppy-lust. Follow Everrett’s inner thoughts, feelings, fantasies, emotions, anxieties, and sexual escapades both alone and with the alluring potential to someday “go all the way”. It’s a treacherous voyage of self discovery filled with whirlpools of self doubt, shoals of unjustified confidence, and guiding currents of compassion. Destiny changing turning points shape Everrett until he is ready and worthy to meet his match.      
+It’s time to give the world a young man’s *inner experience* of finding love. Young men need guides to make sense of the world and their places in it. The Author benefitted from several guides, all young women. This story is informed by the Author's lived experience and takes place over the span of a bit more than seven years starting in fall 1983, a period like no other.
 
 ## Author Bio & Disclaimer
 
